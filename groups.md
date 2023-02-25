@@ -38,3 +38,13 @@ John Marfo
 - Tegegn Addiskidan
 - Arpana Shanta
 - Md Sahadat Hossain Sagor
+---
+
+### Signal Group
+- Divyanshi Thummar
+- Iqra Ishtiaq
+- Aryana Haji
+- Jamila jafarova
+- Amit sukhadiya
+- Prayas Mehta
+- Pankaj Mishra
